@@ -1,4 +1,4 @@
-# Volksbegehren
+# Infomaterial der Bundeskanzlei für Volksbegehren
 
 Diese Dokumente stellt die Bundeskanzlei für Initiativen und Referenden nur in gedruckter Form zur Verfügung. 
 
